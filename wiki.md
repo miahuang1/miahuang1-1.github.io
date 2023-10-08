@@ -8,7 +8,7 @@
 CookieAnn first met Duffy when she was holding a stack of waffles and Duffy was about to enjoy his marshmallows.CookieAnn accidentally bumped into Duffy and their food flew into the air.Luckily, CookieAnn caught them, which immediately prompted her to invent a new recipe for a marshmallow Sugar Waffle Sandwiches! Duffy loved this delicious snack and they became fast friends.
 
 # Disney Park
-Cookie Ann Beginning December 26, 2019, visitors to Shanghai Disneyland will be able to meet and greet CookieAnn on Mickey Street and enjoy a range of new themed merchandise, as well as exclusive food and beverages inspired by the passionate chef[^1].
+Cookie Ann Beginning December 26, 2019, visitors to Shanghai Disneyland will be able to meet and greet CookieAnn on Mickey Street and enjoy a range of new themed merchandise, as well as exclusive food and beverages inspired by the passionate chef.
 
 # Picture Wall
 ![](https://disneyconnect.com/app/uploads/sites/4/2019/12/press_release_shdr_cookieann_2019_12_18.jpg)
