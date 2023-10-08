@@ -11,7 +11,7 @@ CookieAnn first met Duffy when she was holding a stack of waffles and Duffy was 
 Cookie Ann Beginning December 26, 2019, visitors to Shanghai Disneyland will be able to meet and greet CookieAnn on Mickey Street and enjoy a range of new themed merchandise, as well as exclusive food and beverages inspired by the passionate chef.
 
 # Picture Wall
-![](https://twitter.com/CyberbbLawrence/status/1381113910430892034/photo/1)
+![](https://secure.cdn1.wdpromedia.cn/resize/mwImage/1/630/354/75/wdpromedia.disney.go.com/media/wdpro-shdr-assets/prod/en-cn/system/images/shdr-dine-cookieann-bakery-cafe-hero-1129.jpg)
 
 # More information
 - [Resource 1](https://www.youtube.com/watch?v=b6yLEqTrh-I)
