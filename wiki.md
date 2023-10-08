@@ -1,7 +1,6 @@
 # Disneyland-Cookie ANN
 ![](https://secure.cdn1.wdpromedia.cn/resize/mwImage/1/630/354/75/wdpromedia.disney.go.com/media/wdpro-shdr-assets/prod/en-cn/system/images/shdr-dine-cookieann-bakery-cafe-hero-1129.jpg)
 
-A short description / abstract of the topic you choose. For the text here and below, feel free to use **bold** and *italic* fonts, [linked texts](url),  ![images](url), or any other element you think would be helpful for your audience to understand the topic.
 *Cookie Ann is a doll character from Disney, a yellow puppy with long floppy ears and a keen sense of smell. She loves food and enjoys inventing creative recipes and making treats to share with her friends. Cookie ann is the last member of the Duffy family.She wears a chef's hat and loves to create delicious surprises for her friends.* 
 
 
