@@ -21,6 +21,3 @@ Cookie Ann Beginning December 26, 2019, visitors to Shanghai Disneyland will be 
 
 # References
 1. Reference 1 [Duffy’s Newest Friend CookieAnn Joins Shanghai Disney Resort, 2019](https://disneyconnect.com/dpep/duffys-newest-friend-cookieann-joins-shanghai-disney-resort/)
-
-2. Reference 2
-3. Reference 3
