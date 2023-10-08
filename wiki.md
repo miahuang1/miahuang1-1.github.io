@@ -3,8 +3,8 @@
 
 *Cookie Ann is a doll character from Disney, a yellow puppy with long floppy ears and a keen sense of smell. She loves food and enjoys inventing creative recipes and making treats to share with her friends. Cookie ann is the last member of the Duffy family.She wears a chef's hat and loves to create delicious surprises for her friends.* 
 
-## Background
-# Story
+# Background
+### Story
 CookieAnn first met Duffy when she was holding a stack of waffles and Duffy was about to enjoy his marshmallows.CookieAnn accidentally bumped into Duffy and their food flew into the air.Luckily, CookieAnn caught them, which immediately prompted her to invent a new recipe for a marshmallow Sugar Waffle Sandwiches! Duffy loved this delicious snack and they became fast friends.
 
 ## Section 2
