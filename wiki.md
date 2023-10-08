@@ -19,7 +19,8 @@ Cookie Ann Beginning December 26, 2019, visitors to Shanghai Disneyland will be 
 - [Picture about Cookie Ann with Duffy's friend](https://disneyparks.disney.go.com/blog/2021/12/cookieann-bakery-cafe-now-open-at-shanghai-disneyland/)
 
 
-## References
-1. Reference 1 [^1]https://disneyconnect.com/dpep/duffys-newest-friend-cookieann-joins-shanghai-disney-resort/
+# References
+1. Reference 1 [Duffy’s Newest Friend CookieAnn Joins Shanghai Disney Resort, 2019](https://disneyconnect.com/dpep/duffys-newest-friend-cookieann-joins-shanghai-disney-resort/)
+
 2. Reference 2
 3. Reference 3
